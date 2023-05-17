@@ -1,3 +1,3 @@
 # Resume
 
-Nick Swanson Resume
+Nick Swanson's Resume
