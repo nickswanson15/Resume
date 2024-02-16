@@ -1,3 +1,3 @@
 # Resume
 
-Nick Swanson's Resume (updated Jan 2024)
+Nick Swanson's Resume (updated February 2024)
